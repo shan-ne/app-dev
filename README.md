@@ -1,5 +1,5 @@
 # DRAG RACE PHILIPPINES 
-My Favorite series is *"Drag Race Philippines Season 3"*, this series airs on HBO Go hosted by **Paolo Ballesteros**. 
+My Favorite series is *"Drag Race Philippines Season 3"*, this series airs on **HBO Go** hosted by **Paolo Ballesteros**. 
 > The judges in this season are:
 > - KaladKaren
 > - Jiggly Caliente
